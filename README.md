@@ -1,2 +1,0 @@
-# tet
-https://discordapp.com/api/webhooks/534779093540143114/1HisFPAfFLfE2PIaylqnrR1B4lu4VlTDtJJGYQ-MewewqCLMVg9g5j95CGIOckp2DKtN
